@@ -1,1 +1,2 @@
 # nasi-tumpeng-
+Nasi tumpeng merupakan salah satu hidangan tradisional Indonesia yang kaya akan makna simbolik. Hidangan ini sering kali dihidangkan dalam acara-acara spesial, seperti perayaan ulang tahun, pernikahan, atau acara keagamaan. Meskipun begitu, sedikit yang tahu mengenai asal-usul dan makna di balik hidangan yang menarik ini. Dalam artikel ini, kita akan mengungkap lebih dalam tentang nasi tumpeng, keunikan penyajiannya, serta makna simbolik yang terkandung di dalamnya.
